@@ -62,7 +62,7 @@ Canon is available for discussion where there is a concrete governance, audit, a
 Operational details are shared **only under NDA**.
 
 **Contact:**  
-contact@narrativelogic.co.uk  
+david@narrativelogic.co.uk  
 **Subject:** Canon — NDA discussion request
 
 ---
